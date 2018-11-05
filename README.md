@@ -12,3 +12,7 @@
 - feuilles de papier crépon: idée de couleurs ???  
 
 __PS__ : Hésitez pas à rajouter des idées de couleurs pour la banderole !! 
+
+
+## Jeu :
+- Jeu de fléchette avec une plaque en liège derrière afin d'évité d'abimer le mûr.
