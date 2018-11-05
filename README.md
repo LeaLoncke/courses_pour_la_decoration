@@ -22,3 +22,12 @@ __PS__ : Hésitez pas à rajouter des idées de couleurs pour la banderole !!
 ## Jeu :
 - Jeu de fléchette avec une plaque en liège derrière afin d'évité d'abimer le mûr.
 
+## Dessin :
+
+Dans le cas ou sa interesserais que l'on fasse des dessins il faudrait:
+
+- Feuille ou toile comme vous voulez (Le format importe peu)
+- Avoir déjà une petite idée de se qu'on peut faire en dessin
+- De la peinture sauf à huile car c'est chère et trop long a sécher tous en sentant mauvais
+- Ou si pas de peinture de l'encre mais c'est moins pratique
+- Crayon de couleur ou gris
